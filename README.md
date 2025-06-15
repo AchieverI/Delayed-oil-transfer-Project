@@ -31,3 +31,5 @@ ueiufqiefq jhfuyqirfq fhiqfer
 qofqo eqoefq sjuiq84qy0q838** qkf[rjfurofqhudck  jfhskhg;wrj hrhqhfnaduic dinfapdf fopfqhjnjierhqpr rhqn uqhfjq qjfe r ifdjgri ujheuigher vfivwfiwr gwirhgrgiorg[o ojoergeig 
 fwhjfqq 
 
+```
+Join the plan maintenance team in the maintenance of the bottle washer on planned maintenance day and perform maintenance tasks such as cleaning of spray pipes and replace missing fingers at the infeed and discharge of the bottle washer. Initiate breakdown analysis (BDA) in the event of production stoppage above 30 minutes
