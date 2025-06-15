@@ -16,8 +16,7 @@ graduate trainee at Nigeria Machine Tools Limited.
 if I could cease working with effect from the thirteenth (13) day of September.
 
 1. I sincerely apologize for any inconveniences this sudden news may cause.
-   
-I appreciate the fantastic opportunities that Nigeria Machine Tools Limited 
+   * I appreciate the fantastic opportunities that Nigeria Machine Tools Limited 
 have offered me to grow professionally and personally. 
 Please let me know if there is anything I can do to make the transition 
 smoother. 
