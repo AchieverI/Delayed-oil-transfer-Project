@@ -13,9 +13,8 @@ Osogbo, Osun State.
 * I regret to inform you that I am resigning from my position as an engineering
 graduate trainee at Nigeria Machine Tools Limited.
 * While my contract requires me to give a month’s notice, I would be grateful
-
-if I could cease working with effect from the thirteenth (13) day of September. I 
-sincerely apologize for any inconveniences this sudden news may cause. 
+if I could cease working with effect from the thirteenth (13) day of September.
+I sincerely apologize for any inconveniences this sudden news may cause. 
 I appreciate the fantastic opportunities that Nigeria Machine Tools Limited 
 have offered me to grow professionally and personally. 
 Please let me know if there is anything I can do to make the transition 
