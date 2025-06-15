@@ -1,4 +1,4 @@
-# Resignation from NMT
+## Resignation from NMT
 
 September 10, 2024 
 
