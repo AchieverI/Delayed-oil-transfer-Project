@@ -11,7 +11,7 @@ Osogbo, Osun State.
 **Dear Human Resource Manager,** 
 
 * I regret to inform you that I am resigning from my position as an engineering
-* graduate trainee at Nigeria Machine Tools Limited.
+graduate trainee at Nigeria Machine Tools Limited.
 * While my contract requires me to give a month’s notice, I would be grateful
 
 if I could cease working with effect from the thirteenth (13) day of September. I 
