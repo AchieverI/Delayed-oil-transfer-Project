@@ -1,7 +1,9 @@
-# Delayed oil transfer Project
+# Resignation letter from NMT
+
 September 10, 2024 
 
 **Imadonigie Moses** 
+
 Nigeria Machine Tools Limited, 
 Km 8, Osogbo-Ikirun Road, 
 Osogbo, Osun State.
