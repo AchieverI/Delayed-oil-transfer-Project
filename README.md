@@ -14,6 +14,7 @@ Osogbo, Osun State.
 graduate trainee at Nigeria Machine Tools Limited.
 * While my contract requires me to give a month’s notice, I would be grateful
 if I could cease working with effect from the thirteenth (13) day of September.
+
 I sincerely apologize for any inconveniences this sudden news may cause. 
 I appreciate the fantastic opportunities that Nigeria Machine Tools Limited 
 have offered me to grow professionally and personally. 
